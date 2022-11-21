@@ -1,0 +1,1 @@
+# community-global-ai-developer-days-torino-italy-2022
